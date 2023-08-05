@@ -1,4 +1,4 @@
-### Olá fala Dev seja VOCÊ iniciante ou não! 🧐👋 <br>
+### Olá ... fala Dev seja VOCÊ iniciante ou não! 🧐👋 <br>
 ##
 <center><p>Quem vos fala sou eu, Emily Cavalcante e sejá bem-vindo ao perfil que será em breve sua referencia futuramente<p></center>
  Um lugar de Compartilhamento de conhecimento e estratégia. 
